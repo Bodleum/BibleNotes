@@ -680,5 +680,5 @@ lives grounded in him, filled with thanksgiving.
         * Have a devotion at least x minutes long.
         * Know about big theological words.
     1. **How is Jesus better than these?**
-
-* According to these verses what did Jesus achieve on the cross and how do we benefit from his work on our behalf?
+8. **According to these verses, what did Jesus achieve on the cross and how do**
+   **we benefit from his work on our behalf?**
