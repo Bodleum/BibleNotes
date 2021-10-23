@@ -483,6 +483,7 @@ with God, who has forgiven all our sins by the cross.
 Aim: Focus on Christ, so as to not fall prey to false teaching, and live
 lives grounded in him, filled with thanksgiving.
 
+
 ### Main Commands
 1. Walk in Christ **(6)**
     * "Therefore" points back to Paul writing about Christ's centrality to his
@@ -609,7 +610,7 @@ and a new life in him, so they shouldn't turn away to anything else.
         * Be active in the faith, from connotations of "walk" **(2:6)** and
           "abound" **(2:7)**
     * Don't let anyone "[take] you captive" **(2:8)**
-    2. **Taken captive by what exactly?**
+    1. **Taken captive by what exactly?**
         * Worldly views, from "philosophy and empty deceit", "human tradition"
           **(2:8)**
         * False teaching, not explicit what the teaching is but it is "not
@@ -621,6 +622,40 @@ and a new life in him, so they shouldn't turn away to anything else.
           found in this teaching.
         * "deceit" **(2:8)**, meaning that it is outrightly false, can lead
           away from the Truth, i.e. Christ.
+5. **What reasons does Paul give for this?**
+    * Filled in Christ: **(9--10)**
+    1. **[Can't think of a follow up question for this]**
+        * In Jesus, "the whole fullness of deity dwells" meaning that he is God in
+          the flesh, and so he is all they need to know God.
+        * Moreover, the Colossians have "been filled in him", meaning that they
+          have a union with Christ and have been made complete in him. Note, they
+          already have this.
+        * Jesus is the "head of all rule and authority", meaning that there is no
+          power greater than him.
+    * Marked out: **(11--13)**
+    2. **What does Paul mean when he writes about "the circumcision of Christ"?**
+        * Paul compares physical circumcision to the spiritual action of "putting
+          off the body of the flesh". The believers no longer live according to the
+          flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.
+          **(1:13)**
+        * The Colossians don't need to look elsewhere for spiritual markers, since
+          they already have been marked out by baptism.
+        * Baptism represents the death to their sin and then the new life they have
+          in Christ. It's a mirroring of Christ's death in their place on the cross
+          and subsequent victory over death and sin in his resurrection, calling
+          the believers to imitate Christ's behaviour in their own lives.
+    * Made alive in Christ: **(13--15)**
+    3. **How does the resurrection of Jesus encourage us/them to walk in Christ?**
+        * Paul assures them that they need no extra method of removing sin, it has
+          been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all
+          our trespasses", "cancelling the record of debt", "nailing it to the
+          cross"
+        * Additionally, Jesus has triumphed over all "rulers and authorities" and
+          so the Colossians need look no further for security against demonic
+          powers since Christ has "disarmed" them and "put them to open shame".
+        * Having been made alive in Christ with their sins forgiven, the Colossians
+          shouldn't go back to their evil ways, instead seeking to live in a way
+          which pleases and honours God.
 
 
 
