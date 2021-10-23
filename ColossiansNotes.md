@@ -484,104 +484,104 @@ Aim: Focus on Christ, so as to not fall prey to false teaching, and live
 lives grounded in him, filled with thanksgiving.
 
 
-### Main Commands
-1. Walk in Christ **(6)**
-    * "Therefore" points back to Paul writing about Christ's centrality to his
-      ministry, and his rejoicing in their firm faith.
-    * Because of this, Paul instructs them to "walk in [Christ]", meaning to
-      live in a manner which reflects their faith. *(see Philippians 1:27)*
-    * Paul stresses that this isn't a new teaching, but rather an urging to be
-      "rooted and built up in him", growing in the faith they already have
-      "just as [they] were taught".
-    * The full sufficiency of Jesus should naturally result in a life filled
-      with thanksgiving.
-    * The right response to Christ is an *active* faith, and Paul uses words
-      like "walk" and "abounding" to indicate this. He goes on to write about
-      this more later in the letter.
-2. Don't be taken captive **(8)** by "philosophy and empty deceit", meaning:
-    1. Worldly views
-    2. Claims of happiness outside of Christ
-    * Paul goes on to warn them of what to avoid: false teaching.
-    * The main point is that whatever their teaching is, it is "not according to Christ"
-    * Paul not only describes this teaching as "empty", implying that there is
-      no substance to it and ultimately is unfulfilling, but as "deceit",
-      meaning that it can draw the Colossian Christians away from Christ.
-    * He also warns against "human tradition" indicating that these teachings
-      were passed down, and against "elemental spirits of the world" meaning
-      that these teachings came from the worldly desires of the false teachers
-      and also possibly from demonic spirits.
-
-### Why should we walk in Christ?
-The Colossians have all they need in Christ, forgiveness of sins by the cross
-and a new life in him, so they shouldn't turn away to anything else.
-
-**3 main reasons.**
-
-1. Filled in Christ: **(9--10)**
-    * In Jesus, "the whole fullness of deity dwells" meaning that he is God in
-      the flesh, and so he is all they need to know God.
-    * Moreover, the Colossians have "been filled in him", meaning that they
-      have a union with Christ and have been made complete in him. Note, they
-      already have this.
-    * Jesus is the "head of all rule and authority", meaning that there is no
-      power greater than him.
-2. Marked out: **(11--13)**
-    * Paul compares physical circumcision to the spiritual action of "putting
-      off the body of the flesh". The believers no longer live according to the
-      flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.
-      **(1:13)**
-    * The Colossians don't need to look elsewhere for spiritual markers, since
-      they already have been marked out by baptism.
-    * Baptism represents the death to their sin and then the new life they have
-      in Christ. It's a mirroring of Christ's death in their place on the cross
-      and subsequent victory over death and sin in his resurrection, calling
-      the believers to imitate Christ's behaviour in their own lives.
-3. Made alive in Christ: **(13--15)**
-    * Paul assures them that they need no extra method of removing sin, it has
-      been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all
-      our trespasses", "cancelling the record of debt", "nailing it to the
-      cross"
-    * Additionally, Jesus has triumphed over all "rulers and authorities" and
-      so the Colossians need look no further for security against demonic
-      powers since Christ has "disarmed" them and "put them to open shame".
-    * Having been made alive in Christ with their sins forgiven, the Colossians
-      shouldn't go back to their evil ways, instead seeking to live in a way
-      which pleases and honours God.
-
-### What's the point for me?
-* False teachers don't come and announce themselves but come more subtly. We
-  should be wary of anyone who presents an alternate program from Christ.
-* Some ways we can be lead into false teaching is by people saying "Oh, you're
-  not a proper Christian unless you:
-    * Go to church twice a week, and go to the prayer meeting.
-    * Speak in tongues.
-    * Don't drink or smoke.
-    * Have a "Damascus road" experience.
-    * Have a devotion at least x minutes long.
-    * Know about big theological words.
-
-  Paul emphatically presses that Jesus has fully dealt with our sin and so
-  there is no need for anything outside of him.
-* Paul makes clear that the key to spiritual growth is to remain in Christ and
-  live like him, and so we also should seek to be "rooted and built up in him
-  and established in the faith". How?
-    * As a life group, remind each other of the sufficiency of Christ,
-      especially when we are struggling.
-    * Maintain an active prayer and devotional routine.
-    * "Continue steadfastly in prayer" **(4:2)**
-    * "Set your minds on things that are above" **(3:2)**
-    * "Put to death therefore what is earthy in you" **(3:5)**
-
-
-### Why is this helpful?
-* Choice between Jesus and other things, clear reasons why to choose Jesus.
-* Paul explains his commands to them.
-* Encourage them to stay in Christ alone.
-* Emphasise that Christ is fully sufficient.
-
-### How is this helpful to us?
-* Same forgiveness in Christ.
-* Christ is still enough.
+<!-- ### Main Commands      -->
+<!-- 1. Walk in Christ **(6)**      -->
+<!--     * "Therefore" points back to Paul writing about Christ's centrality to his     -->
+<!--       ministry, and his rejoicing in their firm faith.     -->
+<!--     * Because of this, Paul instructs them to "walk in [Christ]", meaning to       -->
+<!--       live in a manner which reflects their faith. *(see Philippians 1:27)*        -->
+<!--     * Paul stresses that this isn't a new teaching, but rather an urging to be     -->
+<!--       "rooted and built up in him", growing in the faith they already have     -->
+<!--       "just as [they] were taught".        -->
+<!--     * The full sufficiency of Jesus should naturally result in a life filled       -->
+<!--       with thanksgiving.       -->
+<!--     * The right response to Christ is an *active* faith, and Paul uses words       -->
+<!--       like "walk" and "abounding" to indicate this. He goes on to write about      -->
+<!--       this more later in the letter.       -->
+<!-- 2. Don't be taken captive **(8)** by "philosophy and empty deceit", meaning:       -->
+<!--     1. Worldly views       -->
+<!--     2. Claims of happiness outside of Christ       -->
+<!--     * Paul goes on to warn them of what to avoid: false teaching.      -->
+<!--     * The main point is that whatever their teaching is, it is "not according to Christ"       -->
+<!--     * Paul not only describes this teaching as "empty", implying that there is     -->
+<!--       no substance to it and ultimately is unfulfilling, but as "deceit",      -->
+<!--       meaning that it can draw the Colossian Christians away from Christ.      -->
+<!--     * He also warns against "human tradition" indicating that these teachings      -->
+<!--       were passed down, and against "elemental spirits of the world" meaning       -->
+<!--       that these teachings came from the worldly desires of the false teachers     -->
+<!--       and also possibly from demonic spirits.      -->
+<!--        -->
+<!-- ### Why should we walk in Christ?      -->
+<!-- The Colossians have all they need in Christ, forgiveness of sins by the cross      -->
+<!-- and a new life in him, so they shouldn't turn away to anything else.       -->
+<!--        -->
+<!-- **3 main reasons.**        -->
+<!--        -->
+<!-- 1. Filled in Christ: **(9--10)**       -->
+<!--     * In Jesus, "the whole fullness of deity dwells" meaning that he is God in     -->
+<!--       the flesh, and so he is all they need to know God.       -->
+<!--     * Moreover, the Colossians have "been filled in him", meaning that they        -->
+<!--       have a union with Christ and have been made complete in him. Note, they      -->
+<!--       already have this.       -->
+<!--     * Jesus is the "head of all rule and authority", meaning that there is no      -->
+<!--       power greater than him.      -->
+<!-- 2. Marked out: **(11--13)**        -->
+<!--     * Paul compares physical circumcision to the spiritual action of "putting      -->
+<!--       off the body of the flesh". The believers no longer live according to the        -->
+<!--       flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.     -->
+<!--       **(1:13)**       -->
+<!--     * The Colossians don't need to look elsewhere for spiritual markers, since     -->
+<!--       they already have been marked out by baptism.        -->
+<!--     * Baptism represents the death to their sin and then the new life they have        -->
+<!--       in Christ. It's a mirroring of Christ's death in their place on the cross        -->
+<!--       and subsequent victory over death and sin in his resurrection, calling       -->
+<!--       the believers to imitate Christ's behaviour in their own lives.      -->
+<!-- 3. Made alive in Christ: **(13--15)**      -->
+<!--     * Paul assures them that they need no extra method of removing sin, it has     -->
+<!--       been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all     -->
+<!--       our trespasses", "cancelling the record of debt", "nailing it to the     -->
+<!--       cross"       -->
+<!--     * Additionally, Jesus has triumphed over all "rulers and authorities" and      -->
+<!--       so the Colossians need look no further for security against demonic      -->
+<!--       powers since Christ has "disarmed" them and "put them to open shame".        -->
+<!--     * Having been made alive in Christ with their sins forgiven, the Colossians        -->
+<!--       shouldn't go back to their evil ways, instead seeking to live in a way       -->
+<!--       which pleases and honours God.       -->
+<!--        -->
+<!-- ### What's the point for me?       -->
+<!-- * False teachers don't come and announce themselves but come more subtly. We       -->
+<!--   should be wary of anyone who presents an alternate program from Christ.      -->
+<!-- * Some ways we can be lead into false teaching is by people saying "Oh, you're     -->
+<!--   not a proper Christian unless you:       -->
+<!--     * Go to church twice a week, and go to the prayer meeting.     -->
+<!--     * Speak in tongues.        -->
+<!--     * Don't drink or smoke.        -->
+<!--     * Have a "Damascus road" experience.       -->
+<!--     * Have a devotion at least x minutes long.     -->
+<!--     * Know about big theological words.        -->
+<!--        -->
+<!--   Paul emphatically presses that Jesus has fully dealt with our sin and so     -->
+<!--   there is no need for anything outside of him.        -->
+<!-- * Paul makes clear that the key to spiritual growth is to remain in Christ and     -->
+<!--   live like him, and so we also should seek to be "rooted and built up in him      -->
+<!--   and established in the faith". How?      -->
+<!--     * As a life group, remind each other of the sufficiency of Christ,     -->
+<!--       especially when we are struggling.       -->
+<!--     * Maintain an active prayer and devotional routine.        -->
+<!--     * "Continue steadfastly in prayer" **(4:2)**       -->
+<!--     * "Set your minds on things that are above" **(3:2)**      -->
+<!--     * "Put to death therefore what is earthy in you" **(3:5)**     -->
+<!--        -->
+<!--        -->
+<!-- ### Why is this helpful?       -->
+<!-- * Choice between Jesus and other things, clear reasons why to choose Jesus.        -->
+<!-- * Paul explains his commands to them.      -->
+<!-- * Encourage them to stay in Christ alone.      -->
+<!-- * Emphasise that Christ is fully sufficient.       -->
+<!--        -->
+<!-- ### How is this helpful to us?     -->
+<!-- * Same forgiveness in Christ.      -->
+<!-- * Christ is still enough.      -->
 
 ### Study
 1. **What/who do you look to for fulfilment?**
