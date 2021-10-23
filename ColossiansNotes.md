@@ -584,18 +584,43 @@ and a new life in him, so they shouldn't turn away to anything else.
 
 ### Study
 1. **What/who do you look to for fulfilment?**
-    * _Thinking about changing this to "When you introduce yourself to someone, what are the first things you say?"_
+    * *Thinking about changing this to "When you introduce yourself to someone,*
+      *what are the first things you say?"*
     * Socialising and my friends
     * Movies/TV or video games
     * Doing well at uni
     * Parents' approval
 2. **Recap of what we've seen so far.**
-3. **Where does Paul remind the Colossians their identity comes from? (Previous passages as well, leads off of recap)**
+3. **Where does Paul remind the Colossians their identity comes from? (Previous**
+   **passages as well, leads off of recap)**
     * They are "saints and faithful brothers in Christ" **(1:2)**
-    * God has "delivered [them] from the domain of darkness and transferred [them] to the kingdom of his beloved Son" **(1:13)**
-    * They are "reconciled" to God, to be presented "holy and blameless and above reproach" **(1:20, 22)**
+    * God has "delivered [them] from the domain of darkness and transferred
+      [them] to the kingdom of his beloved Son" **(1:13)**
+    * They are "reconciled" to God, to be presented "holy and blameless and
+      above reproach" **(1:20, 22)**
     * They have been "filled in [Jesus]" **(2:10)**
     * They have been "made alive together with [Jesus]" **(2:13)**
+4. **In light of this, what does Paul command them to do? (2 main things)**
+    * "walk in [Christ]" **(2:6)**
+    1. **What does it mean/look like for the Colossians to do this?**
+        * Grow in the faith, from "built up in him" **(2:7)**
+        * Continue "bearing fruit and increasing" **(1:6)**
+        * Be thankful, from "abounding in thanksgiving" **(2:7)**
+        * Be active in the faith, from connotations of "walk" **(2:6)** and
+          "abound" **(2:7)**
+    * Don't let anyone "[take] you captive" **(2:8)**
+    2. **Taken captive by what exactly?**
+        * Worldly views, from "philosophy and empty deceit", "human tradition"
+          **(2:8)**
+        * False teaching, not explicit what the teaching is but it is "not
+          according to Christ" **(2:8)**, contrary to the gospel they have
+          heard.
+        * Teachings passed down from possibly pagan religions, from "*human*
+          tradition" **(2:8)**
+        * "empty" **(2:8)**, meaning there is no truth of fulfilment to be
+          found in this teaching.
+        * "deceit" **(2:8)**, meaning that it is outrightly false, can lead
+          away from the Truth, i.e. Christ.
 
 
 
