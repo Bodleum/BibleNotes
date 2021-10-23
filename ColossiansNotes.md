@@ -633,7 +633,7 @@ lives grounded in him, filled with thanksgiving.
         * Jesus is the "head of all rule and authority", meaning that there is no
           power greater than him.
     * Marked out: **(11--13)**
-    2. **What does Paul mean when he writes about "the circumcision of Christ"?**
+    1. **What does Paul mean when he writes about "the circumcision of Christ"?**
         * Paul compares physical circumcision to the spiritual action of "putting
           off the body of the flesh". The believers no longer live according to the
           flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.
@@ -645,7 +645,7 @@ lives grounded in him, filled with thanksgiving.
           and subsequent victory over death and sin in his resurrection, calling
           the believers to imitate Christ's behaviour in their own lives.
     * Made alive in Christ: **(13--15)**
-    3. **How does the resurrection of Jesus encourage us/them to walk in Christ?**
+    1. **How does the resurrection of Jesus encourage us/them to walk in Christ?**
         * Paul assures them that they need no extra method of removing sin, it has
           been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all
           our trespasses", "cancelling the record of debt", "nailing it to the
@@ -656,10 +656,33 @@ lives grounded in him, filled with thanksgiving.
         * Having been made alive in Christ with their sins forgiven, the Colossians
           shouldn't go back to their evil ways, instead seeking to live in a way
           which pleases and honours God.
+6. **Paul makes it clear that all Christians are united to Christ (1:18). What**
+   **does it look like for us to walk in Christ?**
+    * Paul makes clear that the key to spiritual growth is to remain in Christ and
+      live like him, and so we also should seek to be "rooted and built up in him
+      and established in the faith". How?
+        * As a life group, remind each other of the sufficiency of Christ,
+          especially when we are struggling.
+        * Maintain an active prayer and devotional routine.
+        * "Continue steadfastly in prayer" **(4:2)**
+        * "Set your minds on things that are above" **(3:2)**
+        * "Put to death therefore what is earthy in you" **(3:5)**
+7. **What are some of the tempting alternatives to Christ/'Jesus+' we might see in St**
+   **Andrews today?**
+    * False teachers don't come and announce themselves but come more subtly. We
+      should be wary of anyone who presents an alternate program from Christ.
+    * Some ways we can be lead into false teaching is by people saying "Oh, you're
+      not a proper Christian unless you:
+        * Go to church twice a week, and go to the prayer meeting.
+        * Speak in tongues.
+        * Don't drink or smoke.
+        * Have a "Damascus road" experience.
+        * Have a devotion at least x minutes long.
+        * Know about big theological words.
 
 
 
 
-* All Christians are united to Christ. What does it look like for us to walk in Christ?
+
 * Verse 8 speaks of unhelpful alternatives to Christ. What are some of these alternatives available in St Andrews 2021? Why is following Jesus so much better?
 * According to these verses what did Jesus achieve on the cross and how do we benefit from his work on our behalf?
