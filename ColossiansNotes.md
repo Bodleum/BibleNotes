@@ -585,15 +585,15 @@ lives grounded in him, filled with thanksgiving.
 
 ### Study
 1. **What/who do you look to for fulfilment?**
-    * *Thinking about changing this to "When you introduce yourself to someone,*
-      *what are the first things you say?"*
+    * *Thinking about changing this to "When you introduce yourself to*
+      *someone, what are the first things you say?"*
     * Socialising and my friends
     * Movies/TV or video games
     * Doing well at uni
     * Parents' approval
 2. **Recap of what we've seen so far.**
-3. **Where does Paul remind the Colossians their identity comes from? (Previous**
-   **passages as well, leads off of recap)**
+3. **Where does Paul remind the Colossians their identity comes from?**
+   **(Previous passages as well, leads off of recap)**
     * They are "saints and faithful brothers in Christ" **(1:2)**
     * God has "delivered [them] from the domain of darkness and transferred
       [them] to the kingdom of his beloved Son" **(1:13)**
@@ -610,7 +610,7 @@ lives grounded in him, filled with thanksgiving.
         * Be active in the faith, from connotations of "walk" **(2:6)** and
           "abound" **(2:7)**
     * Don't let anyone "[take] you captive" **(2:8)**
-    1. **Taken captive by what exactly?**
+    2. **Taken captive by what exactly?**
         * Worldly views, from "philosophy and empty deceit", "human tradition"
           **(2:8)**
         * False teaching, not explicit what the teaching is but it is "not
@@ -625,60 +625,73 @@ lives grounded in him, filled with thanksgiving.
 5. **What reasons does Paul give for this?**
     * Filled in Christ: **(9--10)**
     1. **[Can't think of a follow up question for this]**
-        * In Jesus, "the whole fullness of deity dwells" meaning that he is God in
-          the flesh, and so he is all they need to know God.
+        * In Jesus, "the whole fullness of deity dwells" meaning that he is God
+          in the flesh, and so he is all they need to know God.
         * Moreover, the Colossians have "been filled in him", meaning that they
-          have a union with Christ and have been made complete in him. Note, they
-          already have this.
-        * Jesus is the "head of all rule and authority", meaning that there is no
-          power greater than him.
+          have a union with Christ and have been made complete in him. Note,
+          they already have this.
+        * Jesus is the "head of all rule and authority", meaning that there is
+          no power greater than him.
     * Marked out: **(11--13)**
-    1. **What does Paul mean when he writes about "the circumcision of Christ"?**
-        * Paul compares physical circumcision to the spiritual action of "putting
-          off the body of the flesh". The believers no longer live according to the
-          flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.
-          **(1:13)**
-        * The Colossians don't need to look elsewhere for spiritual markers, since
-          they already have been marked out by baptism.
-        * Baptism represents the death to their sin and then the new life they have
-          in Christ. It's a mirroring of Christ's death in their place on the cross
-          and subsequent victory over death and sin in his resurrection, calling
-          the believers to imitate Christ's behaviour in their own lives.
+    2. **What does Paul mean when he writes about "the circumcision of**
+       **Christ"?**
+        * Paul compares physical circumcision to the spiritual action of
+          "putting off the body of the flesh". The believers no longer live
+          according to the flesh, *(see Galatians 5:24)* but now live in the
+          kingdom of Christ.  **(1:13)**
+        * The Colossians don't need to look elsewhere for spiritual markers,
+          since they already have been marked out by baptism.
+        * Baptism represents the death to their sin and then the new life they
+          have in Christ. It's a mirroring of Christ's death in their place on
+          the cross and subsequent victory over death and sin in his
+          resurrection, calling the believers to imitate Christ's behaviour in
+          their own lives.
     * Made alive in Christ: **(13--15)**
-    1. **How does the resurrection of Jesus encourage us/them to walk in Christ?**
-        * Paul assures them that they need no extra method of removing sin, it has
-          been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all
-          our trespasses", "cancelling the record of debt", "nailing it to the
-          cross"
-        * Additionally, Jesus has triumphed over all "rulers and authorities" and
-          so the Colossians need look no further for security against demonic
-          powers since Christ has "disarmed" them and "put them to open shame".
-        * Having been made alive in Christ with their sins forgiven, the Colossians
-          shouldn't go back to their evil ways, instead seeking to live in a way
-          which pleases and honours God.
-6. **Paul makes it clear that all Christians are united to Christ (1:18). What**
-   **does it look like for us to walk in Christ?**
-    * Paul makes clear that the key to spiritual growth is to remain in Christ and
-      live like him, and so we also should seek to be "rooted and built up in him
-      and established in the faith". How?
+    3. **How does the resurrection of Jesus encourage us/them to walk in**
+       **Christ?**
+        * Paul assures them that they need no extra method of removing sin, it
+          has been fully dealt with by Jesus' sacrifice on the cross: "forgiven
+          us all our trespasses", "cancelling the record of debt", "nailing it
+          to the cross"
+        * Additionally, Jesus has triumphed over all "rulers and authorities"
+          and so the Colossians need look no further for security against
+          demonic powers since Christ has "disarmed" them and "put them to open
+          shame".
+        * Having been made alive in Christ with their sins forgiven, the
+          Colossians shouldn't go back to their evil ways, instead seeking to
+          live in a way which pleases and honours God.
+6. **Paul makes it clear that all Christians are united to Christ (1:18).**
+   **What does it look like for us to walk in Christ?**
+    * Paul makes clear that the key to spiritual growth is to remain in Christ
+      and live like him, and so we also should seek to be "rooted and built up
+      in him and established in the faith". How?
         * As a life group, remind each other of the sufficiency of Christ,
           especially when we are struggling.
         * Maintain an active prayer and devotional routine.
         * "Continue steadfastly in prayer" **(4:2)**
         * "Set your minds on things that are above" **(3:2)**
         * "Put to death therefore what is earthy in you" **(3:5)**
-7. **What are some of the tempting alternatives to Christ/'Jesus+' we might see in St**
-   **Andrews today?**
-    * False teachers don't come and announce themselves but come more subtly. We
-      should be wary of anyone who presents an alternate program from Christ.
-    * Some ways we can be lead into false teaching is by people saying "Oh, you're
-      not a proper Christian unless you:
+7. **What are some of the tempting alternatives to Christ/'Jesus+' we might**
+   **see in St Andrews today?**
+    * False teachers don't come and announce themselves but come more subtly.
+      We should be wary of anyone who presents an alternate program from
+      Christ.
+    * Some ways we can be lead into false teaching is by people saying "Oh,
+      you're not a proper Christian unless you:
         * Go to church twice a week, and go to the prayer meeting.
         * Speak in tongues.
         * Don't drink or smoke.
         * Have a "Damascus road" experience.
         * Have a devotion at least x minutes long.
-        * Know about big theological words.
+        * Know about big theological words/concepts.
+        * Memorise apologetics.
     1. **How is Jesus better than these?**
-8. **According to these verses, what did Jesus achieve on the cross and how do**
-   **we benefit from his work on our behalf?**
+8. **According to these verses, what did Jesus achieve on the cross and how**
+   **do we benefit from his work on our behalf?**
+    * Gives us a 'circumcision of the spirit' **(2:11)**
+    * God raised Jesus from the grave and raises us 'with him through faith'
+      **(2:12)**
+    * "made alive together with [Jesus]" **(2:13)**
+    * Forgives "all our trespasses" **(2:13)**
+    * Cancelled "the record of debt that stood against us" **(2:14)**, i.e. our sins
+    * Triumphed "over [the rulers and authorities]" **(2:15)**
