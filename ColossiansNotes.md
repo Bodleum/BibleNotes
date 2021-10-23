@@ -1,0 +1,600 @@
+# [Colossians](Colossians.md)
+
+## Background
+* Paul didn't start the church in Colossae, and had never been there.
+* Epaphras, from Colossae, started the church.
+* He had visited Paul in prison, updating on how well the Colossians were doing
+  and some of the pressures they were facing.
+* Paul wrote the letter to encourage the Colossians, address the pressures and
+  challenge them to be more devoted to Jesus.
+
+## General Overview
+* Theme: Paul wants Christians to strive maturity in Christ, so that they will
+  continually be reminded of their Christ centred faith.
+* Aim: Live lives changed by Christ in the present, as though he has already come.
+
+Problem in Colossae, is that there are false teachers. Paul is assured that
+they know Christ but they are being tempted to believe that they need Jesus+.
+Maturity means that:
+
+> as you recieved Christ Jesus the Lord, so walk in him (2:6)
+
+**This is the key theme of the book.**
+
+<!-- -->
+Paul also makes clear that the fact he is in prison is part of the service of
+the gospel and serves to advance it.
+
+<!--  -->
+### Subsections
+
+* 1:1-2: Introduction
+* 1:3-23: Thanksgiving
+    * 3-8: Gives thanks for the believers
+    * 9-14: Prays for them
+    * 15-23: Hymn/poem is an detailed elaboration of who Christ is
+* 1:24-4:6: Christians should strive for maturity
+    * 1:24-2:5: Paul's ministry in context of his desire for them to become spiritually mature
+    * 2:6-23: Paul addresses the cultural pressures the Colossians face
+    * 3:1-4:6: Living a life changed by Christ
+        * 3:1-17: Live as in the new creation
+        * 3:18-4:1: Jesus in the Christian household
+        * 4:2-6: Living as a witness to Christ
+* 4:7-18: A real life example in Philemon and Onesimus
+
+<!--  -->
+### False Teaching
+
+Speculation whether it is from pagans or Jews (or even both).
+Rooting ourselves in the text we find:
+
+> See to it that no one takes you captive by philosophy and empty deciet,
+> according to human tradidion, according to the elemental spirits of the world,
+> and not according to Christ. (2:8)
+
+Clearly, whatever the false teaching is, it is *not of Christ*.
+
+<!--  -->
+
+Verses 2:16-23 is where Paul's main explanation of the false teaching comes.
+This is perhaps the most difficult part of the book.
+Paul makes use of Old Testament references.
+
+<!--  -->
+#### 2:16-23
+
+In v16, teachers are saying the Christians need to abide by the dietary laws of the OT, continued in v21.
+
+> Therefore let no one pass judgment on you in questions of food and drink, or
+> with regard to a festival or a new moon or a Sabbath. (2:16)
+> "Do not handle, Do not taste, Do not touch" (2:21)
+
+The purpose of these laws in the OT was to be clean for temple worship.
+The phrase "festival, new moon or a Sabbath" is centred in the temple in the OT.
+These false teachers are focusing on temple worship, insisting the laws are
+still applicable; however Paul insists they're not: they were shadows of what
+was to come, Christ is the substance of what should be worshipped.
+
+> These are a shadow of the things to come, but the substance belongs to Christ. (2:17)
+
+<!--  -->
+
+Paul continues in verse 18. The asceticism he writes of is when people in early
+Judaism thought that more detachment from the world would make you more
+spiritually sensitive.
+They are talking about an experience in a heavenly temple, not a physical one,
+from the mention of worshipping angels (Christ+ angels).
+
+> Let no one disqualify you, insisting on asceticism and worship of angels (2:18a)
+
+<!--  -->
+
+The heart of the false teaching lies in the second half of verse 18:
+
+> Let no one disqualify you, insisting on asceticism and worship of angels,
+> going on in detail about visions, puffed up without reason by his sensuous mind
+> (2:18)
+
+They thought that if you're really mature and a spiritual Christian (because
+they equated those), then you're going to be really involved in the spiritual
+world; and if you're not, then you're second class.  The false teachers are
+saying that you need special spiritual experiences and visions to make your
+faith better, however, Paul refutes this.  He makes clear that Christ is all
+the temple experience you need, and Paul makes sure to emphasise
+Christ-centredness going into chapter 3.
+
+<!--  -->
+
+The false teachers were saying they were 2nd class citizens because they didn't
+have this experience.
+Today we could see this in:
+
+* Speaking in tongues makes you more spiritual
+* Going to church however many times in a week/Sunday
+* Not drinking alcohol or smoking
+
+Paul says to make Christ the centre of your faith and press on towards
+spiritual maturity, not letting there be any additions.
+
+<!--  -->
+
+What we should do is identify what the false teaching is by the teaching Paul
+presents against it, rather than extra-biblical sources.
+
+<!--  -->
+### Union with Christ
+#### 3:1-17
+
+Immediately after writing about the false Jesus+ teachings, he begins chapter 3
+with emphasising unity with Christ, who is exulted in Heaven. This should
+influence our thinking and so we get verse 2:
+
+> Set your minds on things that are above, not on things than are on earth. (3:2)
+
+<!--  -->
+
+Note that in verse 4, Chris is our life *now*, not after we die.
+
+> When Christ who is your life appears, then you also will appear with him in glory. (3:4)
+
+When we believe, we are represented by Jesus and come into union with him
+spiritually, taking on what he has taken on.
+Examples:
+
+* Christ is the image of God; we are being conformed to the image of God.
+* Christ was sanctified (1 Cor 1:30-31); we are being sanctified through the spirit.
+
+> And because of him you are in Christ Jesus, who became to us wisdom from
+> God, righteousness and sanctification and redemption, so that, as it is
+> written, "Let the one who boasts, boast in the Lord." (1 Cor 1:30-31)
+
+* 1 Tim 3:16 says Jesus was justified, meaning that after he was judged to
+  be guilty and crucified, his resurrection vindicates his righteousness;
+  we are represented by his life, which was declared to be righteous.
+
+> ...He was manifested in the flesh, vindicaded [or justified] by the
+> Spirit...(1 Tim 3:16)
+
+* Christ was declared to be the son of God (Rom 1:3-4); in Romans 8 and
+  Galatians 4, we are adopted sons of God.
+
+> concerning [God's] Son, who was descended from David according to the flesh
+> and was declared to be the Son of God in power according to the Spirit of
+> holiness by his resurrection from the dead, Jesus Christ our Lord (Romans
+> 1:3-4)
+> For all who are led by the Spirit of God are sons of God. (Romans 8:14)
+> ...God set forth his Son, born of woman, born under the law, to redeem those
+> who were under the law, so that we might receive adoption as sons.
+> (Galatians 4:4-5)
+
+<!--  -->
+### In the Household
+#### 3:18-4:1
+
+How does this fit into the rest of the letter? Paul has written about Christ's
+role in the first and second creations in chapter 1, so why now is he focusing
+on the home?
+Because Christ has come, and the first household is overturned, now Jesus puts
+it back together. Because of the fall, there are obstructions and fractures,
+and Jesus comes to restore these relationships.
+The home is reshaped with Jesus at the centre.
+
+<!--  -->
+### Witness to the World
+#### 4:2-6
+
+This is related to the previous paragraph, in that Paul writes that the
+believers should "walk in wisdom toward outsiders", and the way you behave in
+your home is a part of a witness to others.
+
+<!--  -->
+# Studies
+
+<!--  -->
+## 1:1-14
+
+* Theme: The gospel the Colossians have heard is true and is bearing fruit
+  among them, and in the rest of the world.
+* Aim: Be confident in, and keep growing in Christ, living lives pleasing to
+  God.
+
+### SLOBS
+##### 1->8
+
+**1. What is Paul thankful for in verses 1->8?**
+
+* Their love for all the saints (4)
+* The gospel is working in them and the rest of the world (6)
+
+
+**2. Trace the pathway which leads to Paul giving thanks.**
+
+1. Colossians hear the gospel from Epaphras (7)
+2. They respond with faith in Jesus and love for the saints (4)
+3. They share the gospel and increase in number (6)
+4. Epaphras reports back to Paul and he gives thanks (4)
+
+*This is a good question, tracing the flow of the passage is a useful exercise*
+
+The gospel is spread by ordinary people, nothing flashy.
+The Colossians have faith because of the hope laid up for them in heaven. =>
+They are driven by an eternal thing
+
+
+**3. Why do the Colossians need to hear this?**
+
+* Seal of approval, the teaching they had was true.
+* Paul grounds his introduction in the gospel.
+* Establishes the tone -> Paul is thankful for them.
+* Encouragement against false teaching.
+
+
+**4. Why do we need these verses?**
+
+* Helps us see what sharing the gospel looks like => God changed them, not Epaphras.
+* Epaphras is a "faithful minister" (7) who they receive teaching from. Helps
+  us feel encouraged that what we have is enough.
+* For us, be clear and faithful to the word -> what our friends need is the gospel.
+* Be assured by the simplicity of faith, hope and love and be spurred onto a greater faith.
+
+##### 9->14
+
+**5. Write down all the things Paul prays for, then all the things God has done.**
+
+###### Paul
+* Increase in the knowledge of God's will (9)
+    * Know how God wants them to live.
+* Wisdom and understanding of the faith.
+* Bear fruit and good works
+    * They would actually do good works
+    * They would bear fruit (see verse 6) -> a witness
+    * **What does it mean to bear fruit?**
+* Strengthened to endure opposition.
+
+###### God
+* Qualified them: made righteous, justified.
+* Domain of darkness to kingdom of the Son, redeemed
+    * God has moved us from one geography to another.
+* Inheritance: promises made to Israel now apply to them, Gentiles
+
+
+**6. What does this mean for us?**
+
+* In Jesus, we have full understanding and all blessings.
+* An example of how to pray for ourselves and other Christians.
+* Keep us on the narrow path, on Christ and him alone.
+* Pray for these things but also actively pursue them.
+* Paul prays ceaselessly (9) -> challenge to us. Prayer and petition are the
+  engine to growth.
+
+-----
+
+<!--  -->
+## 1:15-23
+
+Theme: Jesus, who is fully divine and Lord over all creation, has made peace
+through the cross, justifying us to be blameless before God.
+
+Aim: Continue following Jesus faithfully/in faith, staying close and true to
+the gospel.
+
+### SLOBS
+##### 15->20
+**1. What do we learn about Jesus in verses 15->20?**
+
+* "Image of the invisible God" (15) => if you know Jesus, you know the Father
+  (John 14:7), he *is* God.
+* "Firstborn of all creation" (15) => the firstborn has the inheritance rights,
+  Jesus has that right over creation, and in him we share a heavenly
+  inheritance. The foremost of all creation, the most important.
+    * "firstborn from the dead" (18) => Jesus is first of the new creation.
+      Adam was the firstborn of the old creation, physical death, Jesus is the
+      firstborn of the new creation and eternal life.
+* "by him all things were made" (16) => God didn't make things for Jesus as a
+  gift or because Jesus couldn't, Jesus has a vital and active role in the
+  creation itself. Similar to John 1:3. A statement of the Trinity.
+* "all things were made through him and for him" (16) => As above, Jesus had an
+  active part in creation, and creation was made to bring glory to him.
+* "all things hold together" (17) => He maintains creation and has an active
+  role in it to this day. 'He built the car and now he's driving it'
+* "reconcile to himself all things" (20) => One day, everything will be under
+  Christ's rule. It will be universal and complete whether you accept him or
+  not.
+
+
+**2. Why do the Colossians need this?**
+
+* Who doesn't?! Expands their view of Christ. He has done everything for you,
+  you can't add or subtract from him, stay focused.
+
+##### 21->23
+**3. What has Jesus done?**
+
+* Reconciled them to God -> complete change of lifestyle. 15->20 is about all
+  things, 21->23 is specifically about the Colossians. The glorious and cosmic
+  Jesus has done this for them. Jesus' great power has been directed at them in
+  love.
+* 'if' in verse 23 -> because 23 is true of the Colossians, the previous verses
+  also hold true. Faith => reconciliation.
+* Paul says, 'Don't shift from the gospel!'
+    * **What can tempt us to shift and how do these things compare to Jesus?**
+    * **How does this passage speak into that?**
+
+### Notes
+*Paul has just finished verse 14 saying we have "redemption" and "forgiveness of*
+*sins" in God's Son, but who is he? Paul goes on to describe Jesus in a hymn/poem*
+*of praise which leads him to encourage the Colossians to "continue in the*
+*faith, stable and steadfast"*
+
+#### Who is Jesus (15->20)
+##### Supreme in Creation (15->17)
+* Paul starts with "[Jesus] is the image of the invisible God", meaning that
+  God has been revealed to mankind through the person of Jesus.
+* Paul also says Jesus is "the firstborn of all creation", here using
+  'firstborn' as title or rank rather than meaning that Jesus was created.
+* Verse 16 tells us why Jesus deserves these titles:
+    * Through Jesus "all things were created"
+    * Similarly, all creation was made "for him", meaning it is intended for
+      his glory, not as a present.
+* Everything the Colossians could see, hear, touch, as well as everything in
+  the hidden, spiritual realm was created by Jesus, for the purpose of
+  honouring him.
+* Jesus' part to play in creation is so vital that "in [Jesus] all things hold
+  together". Without him, nothing can exist.
+
+##### Supreme in Reconciliation (18->20)
+* Amazingly, this same Jesus "is the head of the body, the church" -> he
+  directs and cares for his church, just as a head does for its body.
+* Here Jesus is "firstborn from the dead", meaning that upon his resurrection,
+  Jesus was like the first fruit of God's work to defeat sin, reconciling
+  sinful people to him.
+* The resurrection is a sign that Jesus is pre-eminent (the most important,
+  most powerful), and that God fully dwelt in him.
+* He is also the one through which God saves his people, and makes peace with
+  all things, in heaven and on earth, by Jesus' sacrifice on the cross.
+* His reign will be fully realised one day.
+
+##### Application
+* The natural response to this is praise! We read of Paul's excitement!
+* Before writing against false teachers, Paul paints a picture of Christ's
+  supremacy, which is an important thing for us to keep in mind, esp at the
+  start of a new term and stage in life.
+* We might sometimes feel like Jesus isn't pre-eminent and faith seems boring
+  and mundane, but Paul emphatically reminds us that Jesus is worthy and
+  deserving of all our praise.
+
+#### What Jesus has done and Response (21->23)
+* Paul brings it down to the Colossians, explaining how it affects them
+  personally. "And you ... he has now reconciled."
+* God has changed the Colossians "who once were alienated and hostile" and who
+  did "evil deeds" now have been "reconciled" to be presented "holy and
+  blameless and above reproach before [God]"
+* The 'if' in verse 23 is an indication of the response, the gospel they have
+  is of Jesus, who has *already* reconciled them.
+* False teachers are tempting them to doubt this but Paul encourages them to stay "stable and steadfast, not shifting from the hope of the gospel".
+
+##### Application
+* The Colossians are saved by God's work in Jesus, not by earning it.
+* Paul still encourages them to be active in their faith.
+* **What are some ways we can be active in our faith?**
+* We should continue in our faith, standing firm in Christ
+* **What can temp us to shift away from Jesus?**
+    * Feelings of inadequacy
+    * External pressures like doubts
+    * Others seeming like 'better Christians' than us
+* **How does Paul refute these?**
+* God has fully reconciled us to himself solely through Jesus, he is all we
+  need, there is no greater hope.
+
+
+[PDF](v15-20.pdf)
+
+What is typically said of Israel's God, is now said of Jesus.
+Jesus has not displaced God, rather revealed and made him known.
+
+### Study
+1. **Who Paul writing about in verses 15->20 and how do we know?**
+    * 'He' is Jesus, the Son of God.
+    * Might appear to be God the Father from the context of the previous verses 12->14
+    * "He is the image of the invisible God" -> makes no sense to be the
+      Father, be the image of himself? He's also still invisible
+    * "making peace by the blood of his cross" -> must be Jesus
+2. **Write down all the things we learn about Jesus**
+    * "Image of the invisible God" (15)
+        * **How can you have an image of something invisible?**
+        * God has been revealed to mankind through Jesus.
+        * If you know Jesus, you know the Father (John 14:7), he *is* God.
+    * "Firstborn of all creation" (15)
+        * **Does this mean God made Jesus? / What does Paul mean by this phrase?**
+        * No => the firstborn has the inheritance rights,
+          Jesus has that right over creation, and in him we share a heavenly
+          inheritance.
+        * Paul uses this more like a title or rank.
+        * The foremost of all creation, the most important.
+    * "all things were made through him and for him" (16) => Jesus had an
+      active part in creation, and creation was made to bring glory to him. God
+      didn't make things for Jesus as a gift or because Jesus couldn't. Similar
+      to John 1:3. A statement of the Trinity.
+    * "all things hold together" (17) => He maintains creation and has an active
+      role in it to this day. 'He built the car and now he's driving it'
+    * "head of the body, the church"
+        * **What does it mean for Jesus to be head of the Church?**
+        * Directs and cares for his church, just as a head does for its body.
+    * "firstborn from the dead" (18)
+        * **What on earth does this mean?!**
+        * Jesus is the first fruit of God's work to defeat sin.
+        * Jesus is first of the new creation.
+        * Adam was the firstborn of the old creation, physical death, Jesus is
+          the firstborn of the new creation and eternal life.
+    * "reconcile to himself all things" (20)
+        * **What does Paul mean by 'all things'?**
+        * One day, everything will be under Christ's rule. It will be universal
+          and complete whether you accept him or not.
+        * **How do you think this would have made the Colossians feel?**
+        * **How does this make you feel? / How is this an encouragement for us?**
+            * Meant to be an encouragement if/since we are in Christ.
+3. **Why does Paul write this to the Colossians?**
+    * Expand their view of Christ
+    * Keep them focused on him
+    * Remind them of the gospel -> Jesus has done everything for you, there's
+      no need to add or subtract from him.
+4. **Why is this important for us?**
+    * Keep Christ's supremacy in mind at the start of a new year/term/stage of life
+    * Sometimes we might feel like Jesus isn't pre-eminent, reminder that Jesus
+      is worthy and deserving of our praise.
+5. **Compare what the Colossians were to how they are now in verses 21->23**
+    * "alienated and hostile in mind" => at war with God, far apart from him,
+      completely different to him.
+    * "doing evil deeds" => disobeying God's law, immoral
+    * "reconciled" => they have a new relationship with God, no longer at war.
+    * "holy and blameless and above reproach" => they gain Jesus'
+      righteousness, evil deeds have been erased.
+    * We see a complete change in lifestyle.
+6. **What are some of the things Paul tells the Colossians to do in verse 23?**
+    * "continue in the faith" => don't be tempted to leave Jesus.
+    * "stable and steadfast" => not turning to the right or to the left.
+    * "not shifting from the hope of the gospel" => stay close and true to what
+      you've been taught.
+    * **What can tempt us to shift and how do these compare to Jesus?**
+        * Feelings of inadequacy
+        * External pressures like doubts
+        * Others seeming like 'better Christians'
+        * Paul reminds us that we have been *fully* reconciled to God, Jesus is
+          all we need, he has done it all for us.
+7. **How does this encourage you to "continue in the faith" and what are some practical ways we can do this?**
+
+-----
+
+## 1:24->2:5
+Theme: Paul rejoices in his sufferings in order to spread the gospel, which God
+has revealed to the Gentiles, seeking to encourage and strengthen the believers
+in Colossae (and Laodicea).
+
+Aim: Continue to proclaim Jesus, being united in love, striving for a deeper
+understanding of Christ, who gives wisdom and knowledge, so as no not be lead
+astray.
+
+-----
+
+## 2:6-15
+Theme: Though once dead in sin, you were raised with Christ being made alive
+with God, who has forgiven all our sins by the cross.
+
+Aim: Focus on Christ, so as to not fall prey to false teaching, and live
+lives grounded in him, filled with thanksgiving.
+
+### Main Commands
+1. Walk in Christ **(6)**
+    * "Therefore" points back to Paul writing about Christ's centrality to his
+      ministry, and his rejoicing in their firm faith.
+    * Because of this, Paul instructs them to "walk in [Christ]", meaning to
+      live in a manner which reflects their faith. *(see Philippians 1:27)*
+    * Paul stresses that this isn't a new teaching, but rather an urging to be
+      "rooted and built up in him", growing in the faith they already have
+      "just as [they] were taught".
+    * The full sufficiency of Jesus should naturally result in a life filled
+      with thanksgiving.
+    * The right response to Christ is an *active* faith, and Paul uses words
+      like "walk" and "abounding" to indicate this. He goes on to write about
+      this more later in the letter.
+2. Don't be taken captive **(8)** by "philosophy and empty deceit", meaning:
+    1. Worldly views
+    2. Claims of happiness outside of Christ
+    * Paul goes on to warn them of what to avoid: false teaching.
+    * The main point is that whatever their teaching is, it is "not according to Christ"
+    * Paul not only describes this teaching as "empty", implying that there is
+      no substance to it and ultimately is unfulfilling, but as "deceit",
+      meaning that it can draw the Colossian Christians away from Christ.
+    * He also warns against "human tradition" indicating that these teachings
+      were passed down, and against "elemental spirits of the world" meaning
+      that these teachings came from the worldly desires of the false teachers
+      and also possibly from demonic spirits.
+
+### Why should we walk in Christ?
+The Colossians have all they need in Christ, forgiveness of sins by the cross
+and a new life in him, so they shouldn't turn away to anything else.
+
+**3 main reasons.**
+
+1. Filled in Christ: **(9--10)**
+    * In Jesus, "the whole fullness of deity dwells" meaning that he is God in
+      the flesh, and so he is all they need to know God.
+    * Moreover, the Colossians have "been filled in him", meaning that they
+      have a union with Christ and have been made complete in him. Note, they
+      already have this.
+    * Jesus is the "head of all rule and authority", meaning that there is no
+      power greater than him.
+2. Marked out: **(11--13)**
+    * Paul compares physical circumcision to the spiritual action of "putting
+      off the body of the flesh". The believers no longer live according to the
+      flesh, *(see Galatians 5:24)* but now live in the kingdom of Christ.
+      **(1:13)**
+    * The Colossians don't need to look elsewhere for spiritual markers, since
+      they already have been marked out by baptism.
+    * Baptism represents the death to their sin and then the new life they have
+      in Christ. It's a mirroring of Christ's death in their place on the cross
+      and subsequent victory over death and sin in his resurrection, calling
+      the believers to imitate Christ's behaviour in their own lives.
+3. Made alive in Christ: **(13--15)**
+    * Paul assures them that they need no extra method of removing sin, it has
+      been fully dealt with by Jesus' sacrifice on the cross: "forgiven us all
+      our trespasses", "cancelling the record of debt", "nailing it to the
+      cross"
+    * Additionally, Jesus has triumphed over all "rulers and authorities" and
+      so the Colossians need look no further for security against demonic
+      powers since Christ has "disarmed" them and "put them to open shame".
+    * Having been made alive in Christ with their sins forgiven, the Colossians
+      shouldn't go back to their evil ways, instead seeking to live in a way
+      which pleases and honours God.
+
+### What's the point for me?
+* False teachers don't come and announce themselves but come more subtly. We
+  should be wary of anyone who presents an alternate program from Christ.
+* Some ways we can be lead into false teaching is by people saying "Oh, you're
+  not a proper Christian unless you:
+    * Go to church twice a week, and go to the prayer meeting.
+    * Speak in tongues.
+    * Don't drink or smoke.
+    * Have a "Damascus road" experience.
+    * Have a devotion at least x minutes long.
+    * Know about big theological words.
+
+  Paul emphatically presses that Jesus has fully dealt with our sin and so
+  there is no need for anything outside of him.
+* Paul makes clear that the key to spiritual growth is to remain in Christ and
+  live like him, and so we also should seek to be "rooted and built up in him
+  and established in the faith". How?
+    * As a life group, remind each other of the sufficiency of Christ,
+      especially when we are struggling.
+    * Maintain an active prayer and devotional routine.
+    * "Continue steadfastly in prayer" **(4:2)**
+    * "Set your minds on things that are above" **(3:2)**
+    * "Put to death therefore what is earthy in you" **(3:5)**
+
+
+### Why is this helpful?
+* Choice between Jesus and other things, clear reasons why to choose Jesus.
+* Paul explains his commands to them.
+* Encourage them to stay in Christ alone.
+* Emphasise that Christ is fully sufficient.
+
+### How is this helpful to us?
+* Same forgiveness in Christ.
+* Christ is still enough.
+
+### Study
+**1. Recap of what we've seen so far.**
+
+**2. What/who do you look to for fulfilment?**
+    * Socialising and my friends
+    * Movies/TV or video games
+    * Doing well at uni
+    * Parents' approval
+
+**3.**<++>
+
+
+
+* All Christians are united to Christ. What does it look like for us to walk in Christ?
+* Verse 8 speaks of unhelpful alternatives to Christ. What are some of these alternatives available in St Andrews 2021? Why is following Jesus so much better?
+* According to these verses what did Jesus achieve on the cross and how do we benefit from his work on our behalf?
