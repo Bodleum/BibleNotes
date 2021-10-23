@@ -679,10 +679,6 @@ lives grounded in him, filled with thanksgiving.
         * Have a "Damascus road" experience.
         * Have a devotion at least x minutes long.
         * Know about big theological words.
+    1. **How is Jesus better than these?**
 
-
-
-
-
-* Verse 8 speaks of unhelpful alternatives to Christ. What are some of these alternatives available in St Andrews 2021? Why is following Jesus so much better?
 * According to these verses what did Jesus achieve on the cross and how do we benefit from his work on our behalf?
