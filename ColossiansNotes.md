@@ -583,15 +583,20 @@ and a new life in him, so they shouldn't turn away to anything else.
 * Christ is still enough.
 
 ### Study
-**1. Recap of what we've seen so far.**
-
-**2. What/who do you look to for fulfilment?**
+1. **What/who do you look to for fulfilment?**
+    * _Thinking about changing this to "When you introduce yourself to someone, what are the first things you say?"_
     * Socialising and my friends
     * Movies/TV or video games
     * Doing well at uni
     * Parents' approval
+2. **Recap of what we've seen so far.**
+3. **Where does Paul remind the Colossians their identity comes from? (Previous passages as well, leads off of recap)**
+    * They are "saints and faithful brothers in Christ" **(1:2)**
+    * God has "delivered [them] from the domain of darkness and transferred [them] to the kingdom of his beloved Son" **(1:13)**
+    * They are "reconciled" to God, to be presented "holy and blameless and above reproach" **(1:20, 22)**
+    * They have been "filled in [Jesus]" **(2:10)**
+    * They have been "made alive together with [Jesus]" **(2:13)**
 
-**3.**<++>
 
 
 
