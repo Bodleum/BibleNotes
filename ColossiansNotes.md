@@ -595,3 +595,23 @@ lives grounded in him, filled with thanksgiving.
     * Forgives "all our trespasses" **(2:13)**
     * Cancelled "the record of debt that stood against us" **(2:14)**, i.e. our sins
     * Triumphed "over [the rulers and authorities]" **(2:15)**
+
+-----
+
+## 2:16--23
+
+Theme: You have died and been resurrected with Christ (metaphorically) and so
+are part of his body, no longer subject to the laws of other teachers.
+
+Aim: Therefore, don't submit to false teachings and extra rules, instead stay
+in Christ, receiving spiritual growth and nourishment from him.
+
+-----
+
+## 3:1--11
+
+Theme: Christ has raised you to be a new creation, and is continually making
+you into the likeness of God and uniting together all peoples.
+
+Aim: So live not according to the world but to Christ, no longer sinning but
+walking in him.
