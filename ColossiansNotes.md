@@ -465,7 +465,7 @@ Jesus has not displaced God, rather revealed and made him known.
 
 -----
 
-## 1:24->2:5
+## 1:24-2:5
 Theme: Paul rejoices in his sufferings in order to spread the gospel, which God
 has revealed to the Gentiles, seeking to encourage and strengthen the believers
 in Colossae (and Laodicea).
@@ -598,7 +598,7 @@ lives grounded in him, filled with thanksgiving.
 
 -----
 
-## 2:16--23
+## 2:16-23
 
 Theme: You have died and been resurrected with Christ (metaphorically) and so
 are part of his body, no longer subject to the laws of other teachers.
@@ -608,7 +608,7 @@ in Christ, receiving spiritual growth and nourishment from him.
 
 -----
 
-## 3:1--11
+## 3:1-11
 
 Theme: Christ has raised you to be a new creation, and is continually making
 you into the likeness of God and uniting together all peoples.
