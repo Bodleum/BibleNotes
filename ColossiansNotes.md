@@ -615,3 +615,28 @@ you into the likeness of God and uniting together all peoples.
 
 Aim: So live not according to the world but to Christ, no longer sinning but
 walking in him.
+
+### Notes
+#### How do these versed flow from the previous section?
+* "If then you have been raised with Christ" continues from the writings about
+  baptism as a symbol of our death to sin and new life in Christ.
+* Paul has just instructed the Colossians in what not to do, now goes on to say
+  what *to* do.
+* A clear application of how to walk in Christ.
+
+#### What is the importance of verses 1 to 4?
+* Gives them assurance of their union with Christ.
+* Paul encourages them by reminding them of what they have now, and what they
+  will have in the future.
+* He reminds the Colossians once again of Christ's sovereignty.
+
+#### Why is this an encouragement?
+* "When Christ who is your life", a challenge to us, do we live as though
+  Christ is our life?
+* An exhortation to seek eternal glory and imperishable treasures in heaven,
+  over earthly things.
+* "your life is hidden with Christ in God", their life is secure and their
+  salvation cannot be taken away from them *(see Romans 8:38)*
+
+### Study
+
