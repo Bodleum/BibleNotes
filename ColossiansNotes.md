@@ -677,10 +677,23 @@ walking in him.
       should not continue "with its practices".
     * Paul reminds them that "In these you too once walked", and urges them
       strongly to "put to death therefore what is earthly in you". This is a
-      hard challenge, because our hearts are fundamentally broken *[probably*
-      *won't bring this up, but this is my understanding of original sin]* we
-      have a natural desire to stray from God. The battle against sin is active
-      and ongoing. Paul uses the strongest language for them to make the
+      hard challenge, because our hearts are fundamentally broken and we have a
+      natural desire to stray from God. *[Probably won't bring this up, but*
+      *this is my understanding of original sin]* The battle against sin is
+      active and ongoing. Paul uses the strongest language for them to make the
       strongest effort.
 5. **But by the grace of God we are not alone in this battle. What**
    **encouragements does Paul offer here?**
+    * "have put on the new self", they are new creations now, raised with
+      Christ **(3:1)** and freed from their record of debt **(2:14)**.
+    * "being renewed in knowledge", God is working in them, renewing them and
+      giving them increasing knowledge to help fight the battle against their
+      sinful desires. He is the one giving them power and growth **(2:20)**.
+    * "after the image of its creator", moreover God is continually making them
+      more and more Christ-like, and so they are "filled in [Christ]"
+      **(2:10)**, more able to resist temptation and assured that the victory
+      against sin has already been won on their behalf **(2:13-15)**
+    * Paul then shows that the gospel breaks down all barriers between peoples,
+      uniting *all* who are in Christ to himself. No matter who they are or
+      where they come from, Christ is with them and working in them.
+6. **How can this passage help and challenge us in our daily battle with sin?**
