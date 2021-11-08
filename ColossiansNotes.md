@@ -616,29 +616,12 @@ you into the likeness of God and uniting together all peoples.
 Aim: So live not according to the world but to Christ, no longer sinning but
 walking in him.
 
-### Notes
-#### How do these versed flow from the previous section?
-* Paul has just instructed the Colossians in what not to do, now goes on to say
-  what *to* do.
-* A clear application of how to walk in Christ.
-
-#### What is the importance of verses 1 to 4?
-* Gives them assurance of their union with Christ.
-* He reminds the Colossians once again of Christ's sovereignty.
-
-#### Why is this an encouragement?
-* "When Christ who is your life", a challenge to us, do we live as though
-  Christ is our life?
-
-#### How can we "seek the things that are above?"
-
-
 ### Study
 
 1. **_Recap_** **Who is Christ and how does he fulfil all our needs?**
 2. **In verses 1-4, how does Paul change the Colossians' way of thinking and**
    **why?**
-    * *[Follow up question]* **What does he also remind them of?**
+    * *[Follow up question to be dispensed in the ripest moment]* **What does he also remind them of?**
     * Paul encourages them by reminding them of what they have now, and what
       they will have in the future.
         * "raised with Christ" **(3:1)**
@@ -683,3 +666,21 @@ walking in him.
       it your life, remind yourself of the gospel truths everyday.
     * Read and study the Bible one/two/*n*-on-one, through the week, we have
       brothers and sisters in Christ here to help and encourage us **(2:28)**
+4. *[With a superb segue]* **Paul goes on to write very practically about how**
+   **to live in a Christ-like manner. From verses 5 to 11, what are they?**
+    * Search and destroy all traces of sin in their lives.
+    * Paul gives a first list of sinful thoughts and desires, reminding them
+      that "on account of these the wrath of God is coming". Such things are
+      "idolatry" and are not fitting for those united to Christ.
+    * The second list is one of sinful actions, especially speech.
+    * Paul writes that they have "put of the old self" (past tense) and so
+      should not continue "with its practices".
+    * Paul reminds them that "In these you too once walked", and urges them
+      strongly to "put to death therefore what is earthly in you". This is a
+      hard challenge, because our hearts are fundamentally broken *[probably*
+      *won't bring this up, but this is my understanding of original sin]* we
+      have a natural desire to stray from God. The battle against sin is active
+      and ongoing. Paul uses the strongest language for them to make the
+      strongest effort.
+5. **But by the grace of God we are not alone in this battle. What**
+   **encouragements does Paul offer here?**
