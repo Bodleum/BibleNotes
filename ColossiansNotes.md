@@ -636,7 +636,8 @@ walking in him.
 ### Study
 
 1. **_Recap_** **Who is Christ and how does he fulfil all our needs?**
-2. **In verses 1-4, how does Paul change the Colossians' way of thinking and why?**
+2. **In verses 1-4, how does Paul change the Colossians' way of thinking and**
+   **why?**
     * *[Follow up question]* **What does he also remind them of?**
     * Paul encourages them by reminding them of what they have now, and what
       they will have in the future.
@@ -647,10 +648,10 @@ walking in him.
         * "you also will appear with him in glory" **(3:4)**
         * *[Will explore these in the following bullet points and with various*
           *prompting questions]*
-    * "If then you have been raised with Christ" continues from the writings about
-      baptism as a symbol of our death to sin and new life in Christ.
-    * After writing that "with Christ you died", Paul goes on to write that they
-      are also resurrected with Christ, sharing in new life with him.
+    * "If then you have been raised with Christ" continues from the writings
+      about baptism as a symbol of our death to sin and new life in Christ.
+    * After writing that "with Christ you died", Paul goes on to write that
+      they are also resurrected with Christ, sharing in new life with him.
     * "Christ is, seated at the right hand of God", Jesus is in full authority
       *right now* **(see 1:17, 2:10)** which speaks directly against the Jesus+
       false teachings seen last week.
@@ -664,12 +665,21 @@ walking in him.
       Colossians are guaranteed glory and perfection by Christ's work, so why
       focus on earthly things (thinking back to the false teaching we saw last
       week)
-    * *[Leads into application]* "seek the things that are above", "Set your minds on things that are
-      above", the Colossians should pursue a deeper knowledge of and
-      relationship with Christ rather than earthly things.
+    * *[Leads into application]* "seek the things that are above", "Set your
+      minds on things that are above", the Colossians should pursue a deeper
+      knowledge of and relationship with Christ rather than earthly things.
         * This would look like walking in Christ **(2:6)**, putting God above
           all else **(Matthew 6:33)**, and "holding fast to the Head"
           **(2:19)**
         * Paul will go onto write about very practical ways in which the
           Colossians (and us) can live like Christ, which we will look at in
           the coming weeks (stay tuned!)
+3. **In what ways can we, today, grow in our faith by setting our minds on**
+   **things that are above?**
+    * Prioritise God above all else, i.e. go to Church, read your Bible, pray
+      daily, talk about your faith with fellow Christians, and so on.
+    * Remember the inheritance you have in heaven **(1:12)**
+    * Don't leave 'Christian things' to just a Sunday or Thursday night, make
+      it your life, remind yourself of the gospel truths everyday.
+    * Read and study the Bible one/two/*n*-on-one, through the week, we have
+      brothers and sisters in Christ here to help and encourage us **(2:28)**
