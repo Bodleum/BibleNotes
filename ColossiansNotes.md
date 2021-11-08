@@ -682,7 +682,7 @@ walking in him.
       *this is my understanding of original sin]* The battle against sin is
       active and ongoing. Paul uses the strongest language for them to make the
       strongest effort.
-5. **But by the grace of God we are not alone in this battle. What**
+5. **But by the grace of God we are not alone in this battle! What**
    **encouragements does Paul offer here?**
     * "have put on the new self", they are new creations now, raised with
       Christ **(3:1)** and freed from their record of debt **(2:14)**.
@@ -697,3 +697,22 @@ walking in him.
       uniting *all* who are in Christ to himself. No matter who they are or
       where they come from, Christ is with them and working in them.
 6. **How can this passage help and challenge us in our daily battle with sin?**
+    * We are like the Colossians in that our 'old self' is gone and the new has
+      come **(2 Corinthians 5:17)**, we are no longer like the world, consumed
+      and caught up in earthly desires.
+    * If we are in a battle with particular (perhaps recurring) sins at the
+      moment, we can be reminded that Christ has ultimately defeated them and
+      we are no longer bound to sin, darkness is not forever.
+    * *[Quick side note to encourage]* **Romans 8:28-29:** "For I am sure that
+      neither death nor life, nor angels nor rulers, nor things present nor
+      things to come, nor powers, nor height nor depth, nor anything else in
+      all creation, will be able to separate us from the love of God in Christ
+      Jesus our Lord", no sins we have ever done, are doing or will do are
+      unforgivable, Jesus' love and forgiveness goes far beyond they and we can
+      know that we are secured in the love and saving power of Jesus.
+    * But we're not in heaven yet! Our battle with sin is very much ongoing,
+      and requires daily motivation. We should look to God for our strength
+      **(2:19 and Psalm 46:1 (or just all of it))**.
+    * We can be spurred on by the complete sufficiency of Christ's atoning
+      death and subsequent resurrection, keeping ourselves and encouraging
+      others.
