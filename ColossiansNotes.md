@@ -618,25 +618,58 @@ walking in him.
 
 ### Notes
 #### How do these versed flow from the previous section?
-* "If then you have been raised with Christ" continues from the writings about
-  baptism as a symbol of our death to sin and new life in Christ.
 * Paul has just instructed the Colossians in what not to do, now goes on to say
   what *to* do.
 * A clear application of how to walk in Christ.
 
 #### What is the importance of verses 1 to 4?
 * Gives them assurance of their union with Christ.
-* Paul encourages them by reminding them of what they have now, and what they
-  will have in the future.
 * He reminds the Colossians once again of Christ's sovereignty.
 
 #### Why is this an encouragement?
 * "When Christ who is your life", a challenge to us, do we live as though
   Christ is our life?
-* An exhortation to seek eternal glory and imperishable treasures in heaven,
-  over earthly things.
-* "your life is hidden with Christ in God", their life is secure and their
-  salvation cannot be taken away from them *(see Romans 8:38)*
+
+#### How can we "seek the things that are above?"
+
 
 ### Study
 
+1. **_Recap_** **Who is Christ and how does he fulfil all our needs?**
+2. **In verses 1-4, how does Paul change the Colossians' way of thinking and why?**
+    * *[Follow up question]* **What does he also remind them of?**
+    * Paul encourages them by reminding them of what they have now, and what
+      they will have in the future.
+        * "raised with Christ" **(3:1)**
+        * "Christ is seated at the right hand of God" **(3:1)**
+        * "you life is hidden with Christ in God" **(3:3)**
+        * "When Christ who is you life appears" **(3:4)**
+        * "you also will appear with him in glory" **(3:4)**
+        * *[Will explore these in the following bullet points and with various*
+          *prompting questions]*
+    * "If then you have been raised with Christ" continues from the writings about
+      baptism as a symbol of our death to sin and new life in Christ.
+    * After writing that "with Christ you died", Paul goes on to write that they
+      are also resurrected with Christ, sharing in new life with him.
+    * "Christ is, seated at the right hand of God", Jesus is in full authority
+      *right now* **(see 1:17, 2:10)** which speaks directly against the Jesus+
+      false teachings seen last week.
+    * "your life is hidden with Christ in God", their life is secure and their
+      salvation cannot be taken away from them *(see Romans 8:38)*
+    * "When Christ who is your life", another powerful refute to false teaching
+      and reminder that Christ is central. Jesus *is* their life, without him
+      they are dead **(2:13)**.
+    * "you also will appear with him in glory", an exhortation to seek eternal
+      glory and imperishable treasures in heaven over earthly things. The
+      Colossians are guaranteed glory and perfection by Christ's work, so why
+      focus on earthly things (thinking back to the false teaching we saw last
+      week)
+    * *[Leads into application]* "seek the things that are above", "Set your minds on things that are
+      above", the Colossians should pursue a deeper knowledge of and
+      relationship with Christ rather than earthly things.
+        * This would look like walking in Christ **(2:6)**, putting God above
+          all else **(Matthew 6:33)**, and "holding fast to the Head"
+          **(2:19)**
+        * Paul will go onto write about very practical ways in which the
+          Colossians (and us) can live like Christ, which we will look at in
+          the coming weeks (stay tuned!)
