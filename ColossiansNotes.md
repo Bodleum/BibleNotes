@@ -708,7 +708,7 @@ walking in him.
       things to come, nor powers, nor height nor depth, nor anything else in
       all creation, will be able to separate us from the love of God in Christ
       Jesus our Lord", no sins we have ever done, are doing or will do are
-      unforgivable, Jesus' love and forgiveness goes far beyond they and we can
+      unforgivable, Jesus' love and forgiveness goes far beyond them and we can
       know that we are secured in the love and saving power of Jesus.
     * But we're not in heaven yet! Our battle with sin is very much ongoing,
       and requires daily motivation. We should look to God for our strength
