@@ -1,7 +1,7 @@
 # [Colossians](Colossians.md)
 
 ## Contents
-* [Overview](index.md)
+* [Overview](README.md)
 * [1:1-14](ch1v1-14.md)
 * [1:15-23](ch1v15-23.md)
 * [1:24-2:5](ch1v24-ch2v5.md)
