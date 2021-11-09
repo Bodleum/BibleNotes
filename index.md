@@ -1,15 +1,15 @@
 # [Colossians](Colossians.md)
 
 ## Contents
-#### [Overview](index.md)
-#### [1:1-14](ch1v1-14.md)
-#### [1:15-23](ch1v15-23.md)
-#### [1:24-2:5](ch1v24-ch2v5.md)
-#### [2:6-15](ch2v6-15.md)
-#### [2:16-23](ch2v16-23.md)
-#### [3:1-11](ch3v1-11.md)
-#### [3:12-4:1](ch3v12-ch4v1.md)
-#### [4:2-18](ch4v2-18.md)
+* [Overview](index.md)
+* [1:1-14](ch1v1-14.md)
+* [1:15-23](ch1v15-23.md)
+* [1:24-2:5](ch1v24-ch2v5.md)
+* [2:6-15](ch2v6-15.md)
+* [2:16-23](ch2v16-23.md)
+* [3:1-11](ch3v1-11.md)
+* [3:12-4:1](ch3v12-ch4v1.md)
+* [4:2-18](ch4v2-18.md)
 
 -----
 
@@ -74,7 +74,7 @@ This is perhaps the most difficult part of the book.
 Paul makes use of Old Testament references.
 
 <!--  -->
-#### 2:16-23
+* 2:16-23
 
 In v16, teachers are saying the Christians need to abide by the dietary laws of the OT, continued in v21.
 
@@ -136,7 +136,7 @@ presents against it, rather than extra-biblical sources.
 
 <!--  -->
 ### Union with Christ
-#### 3:1-17
+* 3:1-17
 
 Immediately after writing about the false Jesus+ teachings, he begins chapter 3
 with emphasising unity with Christ, who is exulted in Heaven. This should
@@ -182,7 +182,7 @@ Examples:
 
 <!--  -->
 ### In the Household
-#### 3:18-4:1
+* 3:18-4:1
 
 How does this fit into the rest of the letter? Paul has written about Christ's
 role in the first and second creations in chapter 1, so why now is he focusing
@@ -194,7 +194,7 @@ The home is reshaped with Jesus at the centre.
 
 <!--  -->
 ### Witness to the World
-#### 4:2-6
+* 4:2-6
 
 This is related to the previous paragraph, in that Paul writes that the
 believers should "walk in wisdom toward outsiders", and the way you behave in
