@@ -40,6 +40,8 @@ and fairly, knowing that you also have a Master in heaven.
 
 -----
 
-Theme:
+Theme: Since you are now in Christ, chosen by God, shape your lives in love,
+modelling your actions after Jesus and letting him direct your life.
 
-Aim:
+Aim: So now let your lives be honouring to God, working and living for him,
+remembering the heavenly reward Christ has secured for you.
