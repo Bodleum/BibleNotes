@@ -39,3 +39,21 @@
 * Rod of iron language similar to **Psalm 2**
 * Here the "he who has an ear" comes after "the one who conquers" which breaks
   the pattern of the others for the first time.
+
+## 3
+* The church in Sardis seem to be half-hearted in their works, they are not
+  complete before God. Jesus speaks of coming like a thief against them,
+  echoing what he says in **Matthew 24**. A similar kind of theme to the church
+  in Ephesus, although here there seem to be some people who are still
+  foll/owing Jesus faithfully, "who have not soiled their garments".
+* To the church in Philadelphia Jesus praises them for keeping his word and not
+  denying him, even though they are small. What is the door he is opening for
+  them? Is it the growth of the church? If no-one can shut it, does that mean
+  it will definitely happen? Also, what is the "hour or trial that is coming on
+  the whole world"? Has no-one else kept Jesus' word about patient endurance or
+  why is Jesus sparing only the people in Philadelphia?
+* The church in Laodecia doesn't realise their sinfulness, and think they have
+  it all sorted out themselves. Jesus also rebukes them strongly about being
+  lukewarm, meaning half-hearted and lazy in their faith.Jesus will vomit them
+  out! What does he mean when he urges them to "buy from me gold refined by
+  fire"?
