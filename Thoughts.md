@@ -54,6 +54,18 @@
   why is Jesus sparing only the people in Philadelphia?
 * The church in Laodecia doesn't realise their sinfulness, and think they have
   it all sorted out themselves. Jesus also rebukes them strongly about being
-  lukewarm, meaning half-hearted and lazy in their faith.Jesus will vomit them
+  lukewarm, meaning half-hearted and lazy in their faith. Jesus will vomit them
   out! What does he mean when he urges them to "buy from me gold refined by
   fire"?
+
+## 4
+* What is the door that stands open in Heaven?
+* The phrase "in the Spirit" appears again
+* What is the significance of the gemstones? And why is there a rainbow?
+* What is the sea of glass?
+* Why are they specified as 'living' creatures? Isn't it assumed that they are
+  alive? Or are they living in the same way Jesus describes himself as "the
+  living one"?
+* Why are these animals, lion, ox, eagle and the face of a man, chosen?
+* Why do they have so many eyes?
+* Who are the 24 elders? 12 tribes + 12 disciples?
