@@ -69,3 +69,11 @@
 * Why are these animals, lion, ox, eagle and the face of a man, chosen?
 * Why do they have so many eyes?
 * Who are the 24 elders? 12 tribes + 12 disciples?
+
+## 5
+* What is the scroll, what does it represent?
+* Why can the one on the throne not open the scroll?
+* The elder describes him as a lion, but John looks and sees a lamb.
+* The lamb is worthy because he ransomed people for God.
+* Singing a new song is similar to language in the psalms, **Psalm 40, 96, 98**
+* Every creature, humans and animals it seems, is worshipping the lamb.
