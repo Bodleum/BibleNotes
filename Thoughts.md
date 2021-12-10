@@ -77,3 +77,19 @@
 * The lamb is worthy because he ransomed people for God.
 * Singing a new song is similar to language in the psalms, **Psalm 40, 96, 98**
 * Every creature, humans and animals it seems, is worshipping the lamb.
+
+## 6
+* Why does all this happen as the Lamb opens the seals? What to the seals mean?
+* The first horseman conquers, perhaps symbolising nations like Babylon and
+  Rome?
+* The second horseman seems to represent war and conflict.
+* The third horseman has scales, maybe comes to judge? Also the food is really
+  expensive, so maybe famine? Why does the voice say not to harm the oil and
+  wine?
+* The fourth horseman kills a quarter of the earth by the sword, and with
+  famine and disease. Why?
+* God will not avenge the martyrs under the altar until they're all there.
+  Sounds similar to the parable of the wheat field in **Matthew 13**.
+* At the sixth seal, the world ends pretty much, the people will do anything to
+  escape the wrath of the Lamb. Even the most powerful kings are running to
+  caves and wishing the mountains would fall on them.
