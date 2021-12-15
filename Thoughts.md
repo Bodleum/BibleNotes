@@ -93,3 +93,9 @@
 * At the sixth seal, the world ends pretty much, the people will do anything to
   escape the wrath of the Lamb. Even the most powerful kings are running to
   caves and wishing the mountains would fall on them.
+
+## 7
+* What are the winds of the earth, and why are they being held back?
+* Why are 144,000 sealed then right after there is an innumerable multitude?
+* Aside: If John really did see 'the future' and saw the new creation, then he
+  might have seen me there, pretty cool.
