@@ -9,3 +9,11 @@
 * [2:17-3:12](ch2v17-ch3v12.md)
 * [3:13-4:6](ch3v13-ch4v6.md)
 
+-----
+
+Theme: The Israelites complain that serving God is pointless because the wicked
+prosper, but God warns them that he will come in judgement and destroy the
+wicked.
+
+Aim: Fear God, for he will save the righteous from the destruction of his
+wrath.
