@@ -1,0 +1,53 @@
+\documentclass[a4paper,landscape,extrafontsizes,25pt]{memoir}
+
+\usepackage[T1]{fontenc}
+\usepackage[utf8]{inputenc}
+\usepackage[left=1.5cm, right=1.5cm, top=1.5cm, bottom=2cm]{geometry}
+\usepackage[backend=biber]{biblatex}
+\usepackage{hyperref}
+\usepackage{multicol}
+\usepackage{tabularx}
+
+
+\addbibresource{~/Documents/LaTeX/bib.bib}
+
+\pagenumbering{gobble}
+\linespread{1.5}
+
+\newcounter{scenario}
+\newcommand{\scenario}[1]%
+{
+    \stepcounter{scenario}
+    \begin{center}
+        {\Huge\bfseries\arabic{scenario}}\\ [2em]
+        {\Large #1}
+    \end{center}
+    \pagebreak
+}
+
+
+\title{Scenarios}
+\author{Daniel Laing}
+\date{\today}
+
+% ====   Document   ==== %
+\begin{document}
+%\maketitle
+
+\scenario{Peter and Jason are friends. Peter is a Christian but Jason isn't. One evening they get talking about marriage and divorce because Peter's uncle and aunt are going through a divorce. Peter mentions how sad he is that their marriage is breaking up and Jason says that it's perfectly normal. He says that you can fall out of love with someone and if that happens the only fair thing to do is to get a divorce so that everyone can move on. How should Peter respond?}
+
+\scenario{Nathan's parents have been fighting a lot lately. His dad has even had to move out. His mum is a Christian but his dad isn't. What should Nathan's mum do? What should Nathan do?}
+
+\scenario{Faith and Jess are best friends. Faith is a Christian and Jess is very interested. Jess' parents have been through a messy divorce. As a result of this, Jess says that she never wants to get married. She'd rather just live with her parter and break up when the relationship is over. She no longer believes in marriage. What advice can Faith give Jess?}
+
+\scenario{Jaden and Zo\"e are a married couple in David's local church. They don't come every week, but are involved in the church family and their two kids go to the Sunday School. What can David do to encourage and support Jaden and Zo\"e?}
+
+\scenario{Ella and Lauren are flatmates. They are both Christians but go to different churches. Ella is going out with Khadir, who isn't a Christian. Ella feels torn because she thinks it isn't a good idea to be dating someone who isn't a Christian, but on the other hand really loves Khadir. What advice could Lauren give Ella?}
+
+\scenario{Steve is a Christian and has been brining his non-Christian friend Anna along to church for the past month or two. One day Steve says to you that he really wants to date Anna, and although she isn't a Christian, Steve says she's very interested and if they started dating, he could be a better witness to her. What would you say in response?}
+
+
+%\printbibliography[heading=bibintoc]
+
+\end{document}
+
