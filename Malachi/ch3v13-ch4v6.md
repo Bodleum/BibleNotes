@@ -47,3 +47,27 @@ wrath.
     * **3:17** the righteous are God's treasured possession, deeply loved
     * The complaint is answered because these assurances come only to those who
       serve God and obey him, it is far from pointless and vain
+4. **To what extent have the prophecies here been fulfilled?**
+    * John the Baptist has come (Elijah, see **Matt. 11:14**)
+        * He prophesied about Jesus coming, prepared the way
+        * Jesus straight up confirms that this prophecy is about John the
+          Baptist **(Matt. 11:14)**
+        * Wore and ate the same as Elijah
+        * Elijah was to call Israel back to repentance and John the Baptist did
+          the same, calling people to repent and be baptised.
+        * In **Luke 1:16-17** the prophecy is confirmed, the same words are
+          used.
+5. **How is this passage an encouragement for us?**
+    * We inherit Jesus' righteousness, so we can be confident God will spare us
+    * Jesus took the curse for us
+    * Because of Jesus' death an resurrection, we can be fully confident that
+      we are saved
+    * God's promises are certain, so we can be certain that this is the future
+6. **Why is it worth serving God today?**
+    * We deserve this judgement but those who serve the Lord will be spared
+    * There is a distinction between us and those who don't serve God
+      **(3:18)**
+    * If we love Jesus, then we will obey his commands
+7. *[Review of Malachi as a whole]***What are your main takeaways from Malachi?**
+8. *[Review of Malachi as a whole]***How has Malachi grown your appreciation**
+   **for Jesus?**
