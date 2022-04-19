@@ -20,3 +20,30 @@ wrath.
 
 ## Study
 
+1. **What are the similarities and differences with this complaint compared**
+   **with others in Malachi?**
+   1. *Similarities*
+       * Similar to **2:17**, the Lord is wearied by the Israelites' words
+       * Complaints about serving God
+   2. *Differences*
+       * Answer is not words from God but rather a prophecy about the future,
+         it is not vain to serve God because those who do will be spared his
+         judgement
+       * **2:17** the Israelites complain that God prospers evildoers but here
+         they complain that serving him is pointless.
+2. **What are the different responses the people take and what are their**
+   **outcomes?**
+    * Some feared God and esteemed his name. They are God's treasured
+      possession, spared judgement and are made distinct.
+    * Those who don't will be caught up in God's wrath and judgement, "burning
+      like an oven", a consuming fire in contrast with the refining fire in
+      chapter 3
+3. **What are the assurances God gives the Israelites and how do they answer**
+   **their complaint?**
+    * **3:17** the righteous will be spared, judgement day will be good for
+      them **(4:2-3)**
+    * **4:3** they will tread down the wicked, God will have the ultimate
+      victory.
+    * **3:17** the righteous are God's treasured possession, deeply loved
+    * The complaint is answered because these assurances come only to those who
+      serve God and obey him, it is far from pointless and vain
