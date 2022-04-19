@@ -17,3 +17,5 @@ wicked.
 
 Aim: Fear God, for he will save the righteous from the destruction of his
 wrath.
+
+## Study
