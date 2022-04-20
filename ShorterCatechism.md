@@ -4,7 +4,7 @@ title: Shorter Catechism
 # Shorter Catechism
 
 ## 1. What is the chief end of man?
-Man's chief end is to glorify God, and enjoy him for ever.
+*Man's chief end is to glorify God, and enjoy him for ever.*
 
 ### References
 ##### 1 Corinthians 10:31
@@ -37,8 +37,8 @@ Man's chief end is to glorify God, and enjoy him for ever.
 ---------------------------------------------------------------------------------------------------
 
 ## 2. What rule has God given to direct us how to glorify and enjoy him?
-The Word of God, which consists of the Scriptures of the Old and New
-Testaments, is the only rule to direct us how to glorify and enjoy him.
+*The Word of God, which consists of the Scriptures of the Old and New*
+*Testaments, is the only rule to direct us how to glorify and enjoy him.*
 
 ### References
 ##### Ephesians 2:20
@@ -66,7 +66,8 @@ Testaments, is the only rule to direct us how to glorify and enjoy him.
 ---------------------------------------------------------------------------------------------------
 
 ## 3. What do the Scriptures principally teach?
-The Scriptures principally teach what man is to believe concerning God, and what duty God requires of man.
+*The Scriptures principally teach what man is to believe concerning God, and*
+*what duty God requires of man.*
 
 ### References
 ##### 2 Timothy 1:13
@@ -86,7 +87,8 @@ The Scriptures principally teach what man is to believe concerning God, and what
 ---------------------------------------------------------------------------------------------------
 
 ## 4. What is God?
-God is a Spirit, infinite, eternal and unchangeable in his being, wisdom, power, holiness, justice, goodness and truth.
+*God is a Spirit, infinite, eternal and unchangeable in his being, wisdom,*
+*power, holiness, justice, goodness and truth.*
 
 ### References
   * Deuteronomy 4:15-19
@@ -148,7 +150,7 @@ God is a Spirit, infinite, eternal and unchangeable in his being, wisdom, power,
 ---------------------------------------------------------------------------------------------------
 
 ## 5. Are there more Gods than one?
-There is only one God, the living and true God.
+*There is only one God, the living and true God.*
 
 ### References
   * Deuteronomy 6:4
@@ -163,7 +165,9 @@ There is only one God, the living and true God.
 ---------------------------------------------------------------------------------------------------
 
 ## 6. How many persons are there in the Godhead?
-There are three persons in the Godhead: the Father, the Son and the Holy Spirit; and these three are one God, the same in substance, equal in power and glory.
+*There are three persons in the Godhead: the Father, the Son and the Holy*
+*Spirit; and these three are one God, the same in substance, equal in power and*
+*glory.*
 
 ### References
   * Matthew 3:16-1
@@ -181,7 +185,9 @@ There are three persons in the Godhead: the Father, the Son and the Holy Spirit;
 ---------------------------------------------------------------------------------------------------
 
 ## 7. What are the decrees of God?
-The decrees of God are his eternal plan, according to the purpose of his will, by which, for his own glory, he has foreordained whatever comes to pass; yet in such a manner as to be in no way the author of sin.
+*The decrees of God are his eternal plan, according to the purpose of his will,*
+*by which, for his own glory, he has foreordained whatever comes to pass; yet in*
+*such a manner as to be in no way the author of sin.*
 
 ### References
   * Psalm 33:11
@@ -192,7 +198,7 @@ The decrees of God are his eternal plan, according to the purpose of his will, b
 ---------------------------------------------------------------------------------------------------
 
 ## 8. How does God carry out his decrees?
-God carries out his decrees in the works of creation and providence.
+*God carries out his decrees in the works of creation and providence.*
 
 ### References
   * Psalm 148:8
@@ -203,8 +209,9 @@ God carries out his decrees in the works of creation and providence.
 
 ---------------------------------------------------------------------------------------------------
 
-## 9. What is the of creation?
-The work of creation is the making by God of all things from nothing, by his powerful word, in the space of six days, and all very good.
+## 9. What is the work of creation?
+*The work of creation is the making by God of all things from nothing, by his*
+*powerful word, in the space of six days, and all very good.*
 
 ### References
   * Genesis 1:1
@@ -215,7 +222,8 @@ The work of creation is the making by God of all things from nothing, by his pow
 ---------------------------------------------------------------------------------------------------
 
 ## 10. How did God create man?
-God created man, male and female, in his own image, in knowledge, righteousness and holiness, with rule over the creatures.
+*God created man, male and female, in his own image, in knowledge,*
+*righteousness and holiness, with rule over the creatures.*
 
 ### References
   * Genesis 1:27
@@ -226,7 +234,8 @@ God created man, male and female, in his own image, in knowledge, righteousness 
 ---------------------------------------------------------------------------------------------------
 
 ## 11. What are God's works of providence?
-God's works of providence are his most holy, wise, and powerful preservation and control of all his creatures, and all their actions.
+*God's works of providence are his most holy, wise, and powerful preservation*
+*and control of all his creatures, and all their actions.*
 
 ### References
   * Psalm 145:17
