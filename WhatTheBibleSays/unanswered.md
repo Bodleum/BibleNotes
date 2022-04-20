@@ -1,3 +1,6 @@
+---
+title: Unanswered Questions
+---
 # Unanswered
 
 * [Why have faith?](WhyHaveFaith.md)

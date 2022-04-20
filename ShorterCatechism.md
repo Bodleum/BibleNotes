@@ -1,3 +1,6 @@
+---
+title: Shorter Catechism
+---
 # Shorter Catechism
 
 ## 1. What is the chief end of man?

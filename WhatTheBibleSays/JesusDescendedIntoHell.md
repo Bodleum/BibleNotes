@@ -1,3 +1,6 @@
+---
+title: Jesus Descended into Hell?
+---
 # "descended into Hell"?
 
 What does it mean when the Apostle's Creed says Jesus "descended into Hell"?

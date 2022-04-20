@@ -1,3 +1,6 @@
+---
+title: Revelation
+---
 # Thoughts on Revelation
 
 ## 1

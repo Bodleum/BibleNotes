@@ -1,3 +1,6 @@
+---
+title: Bible
+---
 # Bible
   * [What the Bible Says](WhatTheBibleSays/index.md)
 

@@ -1,3 +1,6 @@
+---
+title: Malachi | Overview
+---
 # Malachi
 
 ## Contents

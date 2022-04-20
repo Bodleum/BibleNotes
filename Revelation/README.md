@@ -1,3 +1,6 @@
+---
+title: Revelation
+---
 # Revelation
 
 ## Contents

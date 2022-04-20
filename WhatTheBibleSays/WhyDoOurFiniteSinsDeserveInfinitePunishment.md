@@ -1,3 +1,6 @@
+---
+title: Why do our finite sins deserve infinite punishment?
+---
 # Why do our finite sins deserve infinite punishment?
 
 One can only commit so many sins, so then isn't it disproportionate to punish

@@ -1,3 +1,6 @@
+---
+title: Why doesn't God make himself more obvious?
+---
 # Why doesn't God make himself more obvious?
 
 Benji McClenahan says:

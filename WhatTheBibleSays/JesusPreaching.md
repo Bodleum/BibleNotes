@@ -1,3 +1,6 @@
+---
+title: Jesus' Preaching
+---
 # Jesus' Preaching
 ##### Ephesians 2:17
 > And [Jesus] came and preached peace to you who were far off and peace to those who were near.

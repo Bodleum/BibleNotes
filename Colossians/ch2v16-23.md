@@ -1,3 +1,6 @@
+---
+title: Colossians
+---
 # [Colossians](Colossians.md)
 
 ## Contents
