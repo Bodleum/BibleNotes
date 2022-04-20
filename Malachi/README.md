@@ -1,4 +1,4 @@
-# [Malachi](Malachi.md)
+# Malachi
 
 ## Contents
 * [Overview](README.md)
