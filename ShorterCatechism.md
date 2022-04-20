@@ -8,18 +8,18 @@ Man's chief end is to glorify God, and enjoy him for ever.
 
 ### References
 ##### 1 Corinthians 10:31
-So, whether you eat or drink, or whatever you do, do all to the glory of God.
+> So, whether you eat or drink, or whatever you do, do all to the glory of God.
 
 ##### Psalms 73:25-28
-Whom have I in heaven but you?
-And there is nothing on earth that I desire besides you.
-My flesh and my heart may fail,
-but God is the strength of my heart and my portion for ever.
-For behold, those who are far from you shall perish;
-you put on end to everyone who is unfaithful to you.
-But for me it is good to be tear God;
-I have made the Lord God my refuge,
-that I may tell of all your works.
+> Whom have I in heaven but you?
+> And there is nothing on earth that I desire besides you.
+> My flesh and my heart may fail,
+> but God is the strength of my heart and my portion for ever.
+> For behold, those who are far from you shall perish;
+> you put on end to everyone who is unfaithful to you.
+> But for me it is good to be tear God;
+> I have made the Lord God my refuge,
+> that I may tell of all your works.
 
 #### Other
   * Psalms 86:9
@@ -42,10 +42,11 @@ Testaments, is the only rule to direct us how to glorify and enjoy him.
 
 ### References
 ##### Ephesians 2:20
-Built on the foundation of the apostles and prophets, Christ Jesus himself being the cornerstone.
+> Built on the foundation of the apostles and prophets, Christ Jesus himself being the cornerstone.
+
 ##### 1 John 1:3-4
-That which we have seen and heard we proclaim also to you, so that you too may have fellowship with us; and indeed our fellowship is with the Father and with his Son Jesus Christ.
-And we are writing these things so that our joy may be complete.
+> That which we have seen and heard we proclaim also to you, so that you too may have fellowship with us; and indeed our fellowship is with the Father and with his Son Jesus Christ.
+> And we are writing these things so that our joy may be complete.
 
 #### Other
   * Matthew 19:4-5 with Genesis 2:24
@@ -69,7 +70,7 @@ The Scriptures principally teach what man is to believe concerning God, and what
 
 ### References
 ##### 2 Timothy 1:13
-Follow the pattern of the sound words that you have heard from me, in the faith and love that are in Chris Jesus.
+> Follow the pattern of the sound words that you have heard from me, in the faith and love that are in Chris Jesus.
 
 #### Other
   * Genesis 1:1
@@ -237,4 +238,4 @@ God's works of providence are his most holy, wise, and powerful preservation and
   * Proverbs 16:33
   * Matthew 10:30
 
-  ---------------------------------------------------------------------------------------------------
+ ---------------------------------------------------------------------------------------------------
