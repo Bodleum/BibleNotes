@@ -3,7 +3,8 @@ title: Why doesn't God make himself more obvious?
 ---
 # Why doesn't God make himself more obvious?
 
-Benji McClenahan says:
+Benjamin McClenahan says:
+
 > God has made himself sufficiently obvious to draw the elect to himself through
 > the work of the Holy Spirit. He has hidden himself from others for the same
 > reason that Jesus spoke to the Pharisees in parables (Matthew 13:10-17) - to hide himself from
