@@ -6,11 +6,14 @@ title: Unanswered Questions
 
 -   [Why have faith?](WhyHaveFaith.md)
 -   [Why don't we see clear miracles today?](WhyDon'tWeSeeClearMiraclesToday.md)
+-   [Praying with confidence?](PrayingWithConfidence.md)
+-   [Turning the other cheek](TurningTheOtherCheek.md)
 
 ## Church
 
 -   [What are the differences between Protestant, Catholic, Orthodox, etc.?](WhatAreTheDifferencesBetweenProtestant,Catholic,Orthodox,Etc.md)
 -   [Believer's Baptism vs Infant Baptism](BelieversBaptismVsInfantBaptism.md)
+-   [Latin](Latin.md)
 
 ## God
 
