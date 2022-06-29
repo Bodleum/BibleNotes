@@ -1,20 +1,23 @@
 ---
 title: Bible
 ---
-# Bible
-  * [What the Bible Says](WhatTheBibleSays/index.md)
+
+# [Bible](Bible/index.md)
 
 ## Old Testament
-  * [Malachi](Malachi/README.md)
+
+-   [Malachi](Malachi/README.md)
 
 ## New Testament
-  * [Colossians](Colossians/README.md)
-  * [Revelation](Revelation/README.md)
 
+-   [Colossians](Colossians/README.md)
+-   [Revelation](Revelation/README.md)
 
 ## Questions
-  * [Unanswered](WhatTheBibleSays/unanswered.md)
-  * [Answered](WhatTheBibleSays/answered.md)
+
+-   [Unanswered](Bible/unanswered.md)
+-   [Answered](Bible/answered.md)
 
 ## Catechism
-  * [Westminister Shorter](ShorterCatechism.md)
+
+-   [Westminister Shorter](ShorterCatechism.md)
